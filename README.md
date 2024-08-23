@@ -10,7 +10,7 @@ LINK DOWNLOAD YANDEX BROWSER RUSIA>>> https://terabox.com/s/1To_kxCjYS7Xzhpdka95
 
 LINK DOWNLOAD YANDEX BROWSER RUSIA>>> https://terabox.com/s/1To_kxCjYS7Xzhpdka95TUg
 
-https://github.com/iik03/example/blob/60eb124f97bf6d08e0a51b4e03e6e022653ddfd3/yandex.jpg
+![bokeh](https://github.com/iik03/example/blob/bae954985c1dfcc055dcaea01f5cd0f21154744a/bokeh.jpg)
 
 Fitur Utama
 
